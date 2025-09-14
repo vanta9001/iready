@@ -1,2 +1,0 @@
-# iready
-hk
